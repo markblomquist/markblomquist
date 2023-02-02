@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @markblomquist
-- 👀 I’m interested in myself
-- 🌱 I’m currently learning this
-- 💞️ I’m looking to collaborate on nothing
+- 👀 I’m interested in my spouse and sexual desire as my survival.
+- 🌱 I’m currently learning this forever.
+- 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me ...
 
 <!---
