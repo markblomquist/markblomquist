@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @markblomquist
-- 👀 I’m interested in my spouse and sexual desire as my survival.
-- 🌱 I’m currently learning this forever.
+- 👀 I’m interested in my family.
+- 🌱 I’m currently learning sex's need in love.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me ...
 
